@@ -1,1 +1,2 @@
-## writting... come later... :)
+## writting analysis... 
+too busy now, come back later... :)
